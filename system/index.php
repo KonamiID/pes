@@ -1,0 +1,1 @@
+Ganteng Gak gan😎
